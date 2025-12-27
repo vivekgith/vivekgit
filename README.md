@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Vivek Raj Verma
-**A passionate Data Scientist || Data Engineer|| *
+**A passionate Data Scientist || *
 
 Email Me 👉 ✉️ **vermavivekraj103@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
